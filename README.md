@@ -5,4 +5,4 @@ hi i dont give a fart if u don't like me. all i do is sit there. u got issues
 
 ⠀⠀⠀⠀⠀⠀⠀⠀[less than mediocre twitter art account](https://twitter.com/vittodantes)⠀⠀⠀⠀⠀⠀⠀check this out ![](https://file.garden/ZgZOjIo9YF7EdB1r/playtime.png)
 
-![](https://file.garden/ZgZOjIo9YF7EdB1r/lucio.png) lucio
+![](https://file.garden/ZgZOjIo9YF7EdB1r/lucio.png) dni chronically online purists ... int chronically online freaks and or normal people
