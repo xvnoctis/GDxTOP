@@ -7,4 +7,5 @@ hi i dont give a fart if u don't like me. all i do is sit there. u got issues
 
 dni chronically online purists ... int chronically online freaks and or normal people
 
-i had to get rid of lucio he was too big im sorry
+![](https://file.garden/ZgZOjIo9YF7EdB1r/lucio300.png) ![](https://file.garden/ZgZOjIo9YF7EdB1r/genji300.png) ![](https://file.garden/ZgZOjIo9YF7EdB1r/cass300.png)
+lucio is BACK baby . WITH boyfriend and boyfriend's boyfriend
