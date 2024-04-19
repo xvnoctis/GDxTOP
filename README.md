@@ -8,3 +8,5 @@ i want 2 make genji but idk how 2make him not ugly so imaginei have a genji skin
 dni chronically online purists ... int chronically online freaks and or normal people
 
 ![](https://file.garden/ZgZOjIo9YF7EdB1r/lucio300.png)![](https://file.garden/ZgZOjIo9YF7EdB1r/genji300.png)![](https://file.garden/ZgZOjIo9YF7EdB1r/cass300.png)lucio is BACK baby . WITH bf and bf's bf.
+
+![cool video](https://file.garden/ZgZOjIo9YF7EdB1r/i%20just%20woke%20up.mp4)
