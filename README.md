@@ -1,5 +1,5 @@
 srry if i dont reply i probably didn't see ur msg in time, but thank you if u complimented! ![](https://komarev.com/ghpvc/?username=VlTTORlNO&color=red) 
-![](https://file.garden/ZgZOjIo9YF7EdB1r/SHINY.gif) [DAILY CLICK 🇵🇸](https://arab.org/click-to-help/palestine/) | [my FAQ](https://rentry.co/vittorinoFAQ) | [ARTFIGHT](https://artfight.net/~maimed) | [ships](https://rentry.co/luowelt) | [last.fm](https://www.last.fm/user/rex69420) | [retrosprng](https://retrospring.net/@Religion)
+![](https://file.garden/ZgZOjIo9YF7EdB1r/SHINY.gif) [DAILY CLICK 🇵🇸](https://arab.org/click-to-help/palestine/) | [my FAQ](https://rentry.co/vittorinoFAQ) | [ARTFIGHT](https://artfight.net/~maimed) | [ships](https://rentry.co/luowelt) | [last.fm](https://www.last.fm/user/rex69420)
 
 my battletag 4 overwatch is frotting#1912 add me n request 2 join my party idgaf [check out this frogger clip](https://file.garden/ZgZOjIo9YF7EdB1r/rotting.mp4)
 
