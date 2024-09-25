@@ -6,4 +6,4 @@ srry if i dont reply i probably didn't see ur msg in time, but thank you if u co
 
 ⠀⠀⠀[less than mediocre twitter art account](https://twitter.com/vittodantes)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-![](https://file.garden/ZgZOjIo9YF7EdB1r/lucio300.png)![](https://file.garden/ZgZOjIo9YF7EdB1r/genji300.png)![](https://file.garden/ZgZOjIo9YF7EdB1r/cass300.png)lucio is BACK baby . WITH bf and bf's bf.
+![](https://file.garden/ZgZOjIo9YF7EdB1r/lucio300.png)![](https://file.garden/ZgZOjIo9YF7EdB1r/genji300.png)![](https://file.garden/ZgZOjIo9YF7EdB1r/cass300.png) genji and his two wives
