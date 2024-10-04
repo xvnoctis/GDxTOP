@@ -1,3 +1,5 @@
+follow my twitter @vittodantes ..my horse account has been flagged and i do nawt trust it's lifespan
+
 if ur a yaoipilled hetalia fan u should sit near me #declaring a new htalia area true (old one is long forgotten and dead)
 
 srry if i dont reply i probably didn't see ur msg in time, but thank you if u complimented! ![](https://komarev.com/ghpvc/?username=VlTTORlNO&color=red) 
