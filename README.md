@@ -1,6 +1,6 @@
 follow my twitter @vittodantes ..my horse account has been flagged the opps got me. i do not trust the longevity of my account >_< i will also be disappearing for like 12 hrs at a time now . sigh!
 
-if ur a yaoipilled hetalia fan u should sit near me #declaring a new htalia area true (old one is long forgotten and dead)
+if ur a yaoipilled hetalia fan u should sit near me #declaring a new htalia area true (old one is long forgotten and dead) NOT COUNTRYHUMANS!!! GET OUT!!!!!
 
 srry if i dont reply i probably didn't see ur msg in time, but thank you if u complimented! ![](https://komarev.com/ghpvc/?username=VlTTORlNO&color=red) 
 
