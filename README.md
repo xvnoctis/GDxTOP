@@ -1,4 +1,5 @@
 i've been flagged for an autoclicker so sorry if i get back on after 12 hrs and cover u but i am not dealing w that 💔 i click play and go off tab within nanoseconds
+[twitter/faulty art acct](https://x.com/vittodantes)
 
 if ur a yaoipilled hetalia fan u should sit near me #declaring a new htalia area true (old one is long forgotten and dead there is never anyone there do not lie to me and say there is) NOT COUNTRYHUMANS!!! GET OUT!!!!!
 
