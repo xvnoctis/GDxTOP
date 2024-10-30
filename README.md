@@ -1,7 +1,5 @@
 [twitter/mid ass art](https://x.com/vittodantes)
 
-if ur a yaoipilled hetalia fan u should sit near me #declaring a new htalia area true (old one is long forgotten and dead there is never anyone there do not lie to me and say there is) NOT COUNTRYHUMANS!!! GET OUT!!!!!
-
 srry if i dont reply i probably didn't see ur msg in time, but thank you if u complimented! ![](https://komarev.com/ghpvc/?username=VlTTORlNO&color=red) 
 
 
