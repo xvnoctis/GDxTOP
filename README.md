@@ -18,7 +18,7 @@ github wip i was clearly not made for this i feel like yandev rn bro
    $${\color{900000}DNI}$$
    
   <p align="center"> 
-  <strong>${\color{#900000}↳}$⠀lolisho & incest enjoyers , believe 'blackwashing' is a thing</strong>
+  <strong>${\color{#900000}↳}$⠀lolisho & incest enjoyers , believe 'blackwashing' is a thing or whitewash characters</strong>
    </p>
   <p align="center"> 
   <strong>${\color{#900000}↳}$ if u gaf what labels a queer chooses 2 use or hate furries</strong>
