@@ -5,7 +5,7 @@ ${\color{#9E2C4D}⟡}$ <a href="https://rex.atabook.org">SIGN GUESTBOOK</a> ${\c
 <p align="center">
 <h4 align="center"
 
-![](https://komarev.com/ghpvc/?username=VlTTORlNO&label=freak+count+++&color=9E2C4D)
+![](https://komarev.com/ghpvc/?username=VlTTORlNO&label=freak+count+++&color=08000A)
 
 <p align="center">
    $${\color{AE596C}HELP ME HELP WHY ARE THERE NO SPACES}$$
