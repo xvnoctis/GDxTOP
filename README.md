@@ -25,7 +25,7 @@ github wip i was clearly not made for this i feel like yandev rn bro
   <strong>${\color{#C8377C}↳}$⠀lolisho & incest enjoyers , believe 'blackwashing' is a thing or whitewash characters</strong>
    </p>
   <p align="center"> 
-  <strong>${\color{#C8377C}↳}$ if u gaf what labels a queer chooses 2 use or hate furries</strong>
+  <strong>${\color{#C8377C}↳}$ if u gaf what labels a queer chooses 2 use or hate furries. vittoryker fans</strong>
   </p>
   <p align="center">
   <strong>${\color{#AE596C}★}$ <a href="https://rentry.co/psspss">read rentry if u want</a> <strong>${\color{#AE596C}★}$
