@@ -1,6 +1,6 @@
 
 <p align="center">
-${\color{#FF309E}⟡}$ <a href="https://rex.atabook.org">SIGN GUESTBOOK</a> ${\color{#FF309E}⟡}$
+${\color{#FF309E}⟡}$ <a href="https://rex.atabook.org">SIGN ATA/GUESTBOOK</a> ${\color{#FF309E}⟡}$
 
 <p align="center">
 <h4 align="center"
