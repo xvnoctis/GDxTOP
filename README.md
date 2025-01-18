@@ -8,10 +8,10 @@ ${\color{#FF309E}⟡}$ <a href="https://rex.atabook.org">SIGN ATA/GUESTBOOK</a> 
 ![](https://komarev.com/ghpvc/?username=VlTTORlNO&label=freak+count+++&color=08000A)
 
 <p align="center">
-   $${\color{FF309E}HELP ME HELP WHY ARE THERE NO SPACES}$$
+   $${\color{FF309E}GITHUB4EVERWIPBCIDKHOW2DOTHIS}$$
   
 <p align="center">
-github wip i was clearly not made for this i feel like yandev rn bro
+serial humper
 
 <p align="center">
 <a href="https://arab.org/click-to-help/palestine/">DAILY CLICK 🇵🇸</a> ${\color{#FF309E}⟡}$ <a href="https://listography.com/rexmachina">INTERESTS</a> ${\color{#FF309E}⟡}$ <a href="https://www.last.fm/user/rex69420">LAST.FM</a>
