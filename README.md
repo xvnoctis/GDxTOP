@@ -26,6 +26,9 @@ serial humper
    </p>
   <p align="center"> 
   <strong>${\color{#FF309E}↳}$ if u gaf what labels a queer chooses 2 use or hate furries. vittoryker fans</strong>
+  <p align="center"> 
+  <strong>${\color{#FF309E}↳}$⠀-16 on safe server, minors publicly into 18+ media or on the 18+ server </strong>
+   </p>
   </p>
   <p align="center">
   <strong>${\color{#FF309E}★}$ <a href="https://rentry.co/psspss">read rentry if u want</a> <strong>${\color{#FF309E}★}$
