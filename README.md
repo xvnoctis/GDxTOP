@@ -11,7 +11,7 @@ ${\color{#FF309E}⟡}$ <a href="https://rex.atabook.org">SIGN ATA/GUESTBOOK</a> 
    $${\color{FF309E}GITHUB4EVERWIPBCIDKHOW2DOTHIS}$$
   
 <p align="center">
-my github is always attached
+my github is always attached. if my github isn't attached that isn't me
 
 <p align="center">
 <a href="https://arab.org/click-to-help/palestine/">DAILY CLICK 🇵🇸</a> ${\color{#FF309E}⟡}$ <a href="https://listography.com/rexmachina">INTERESTS</a> ${\color{#FF309E}⟡}$ <a href="https://www.last.fm/user/rex69420">LAST.FM</a>
