@@ -30,7 +30,7 @@ here r my own! please listen to any of the following by monkey; monkey bee, heav
   <p align="center"> 
   <strong>${\color{#DA4938}↳}$ if u gaf what labels a queer chooses 2 use or hate furries. vittoryker fans</strong>
   <p align="center"> 
-  <strong>${\color{#DA4938}↳}$⠀-16 on safe server, minors publicly into 18+ media or on the 18+ server </strong>
+  <strong>${\color{#DA4938}↳}$⠀minors publicly into 18+ media or on the 18+ server. under 15 on safe </strong>
    </p>
   </p>
   <p align="center">
