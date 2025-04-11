@@ -25,7 +25,7 @@ no more strawpage sorry i don't like keeping up with it
   <strong>${\color{#DA4938}↳}$⠀lolisho & incest enjoyers , believe 'blackwashing' is a thing or whitewash characters</strong>
    </p>
   <p align="center"> 
-  <strong>${\color{#DA4938}↳}$ if u gaf what labels a queer chooses 2 use or hate furries. vittoryker fans</strong>
+  <strong>${\color{#DA4938}↳}$ if u gaf what labels a queer chooses 2 use or hate furries. vittoryker fans/811 unless i int first</strong>
   <p align="center"> 
   <strong>${\color{#DA4938}↳}$⠀minors publicly into 18+ media or on the 18+ server. under 15 on safe </strong>
    </p>
