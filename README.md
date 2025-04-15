@@ -11,7 +11,7 @@ ${\color{#DA4938}⟡}$ <a href="https://rex.atabook.org">SIGN ATA/GUESTBOOK</a> 
    $${\color{DA4938}GITHUB4EVERWIPBCIDKHOW2DOTHIS}$$
   
 <p align="center">
-no more strawpage sorry i don't like keeping up with it
+i promise i dont bite i just dont bark either #igotnothingtotalkabout
 
 <p align="center">
 <a href="https://arab.org/click-to-help/palestine/">DAILY CLICK 🇵🇸</a> ${\color{#DA4938}⟡}$ <a href="https://listography.com/rexmachina">INTERESTS</a> ${\color{#DA4938}⟡}$ <a href="https://www.last.fm/user/rex69420">LAST.FM</a>
