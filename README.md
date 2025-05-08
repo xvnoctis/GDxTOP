@@ -31,5 +31,5 @@ i promise i dont bite i just dont bark either #igotnothingtotalkabout
    </p>
   </p>
   <p align="center">
-  <strong>${\color{#DA4938}★}$ <a href="https://rentry.co/psspss">read rentry if u want</a> <strong>${\color{#DA4938}★}$
+  <strong>${\color{#DA4938}★}$ <a href="https://rentry.co/psspss">read rentry if u want but its nothingburger</a> <strong>${\color{#DA4938}★}$
   </p>
