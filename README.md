@@ -20,7 +20,7 @@ i like playing games and am bad at conversing!! Play a game with me i'm like bil
    $${\color{#DA4938}DNI}$$
    
   <p align="center"> 
-  <strong>${\color{#DA4938}↳}$⠀lolisho & incest enjoyers , believe 'blackwashing' is a thing or whitewash characters</strong>
+  <strong>${\color{#DA4938}↳}$⠀lolisho & incest consumers , believe 'blackwashing' is a thing or whitewash characters</strong>
    </p>
   <p align="center"> 
   <strong>${\color{#DA4938}↳}$ if u gaf what labels a queer chooses 2 use or hate furries. vittoryker fans/811 unless i int first</strong>
