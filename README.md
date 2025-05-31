@@ -27,5 +27,5 @@ i like playing games and am bad at conversing!! Play a game with me i'm like bil
    </p>
   </p>
   <p align="center">
-★<a href="https://rentry.co/psspss">read rentry if u want but its nothingburger★
+★ <a href="https://rentry.co/psspss">read rentry if u want but its nothingburger</a> ★
   </p>
