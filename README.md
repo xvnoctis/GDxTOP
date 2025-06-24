@@ -21,9 +21,9 @@ i like playing games and am bad at conversing!! Play a game with me i'm like bil
   ↳⠀lolisho & incest consumers , believe 'blackwashing' is a thing or whitewash characters
    </p>
   <p align="center"> 
-  ↳ if u gaf what labels a queer chooses 2 use or hate furries. vittoryker fans/811 unless i int first
+  ↳ if u gaf what labels a queer chooses 2 use or hate furries.
   <p align="center"> 
-  ↳⠀minors publicly into 18+ media or on the 18+ server. under 15 on safe
+  ↳⠀minors publicly into 18+ media [coughDMMD/8:11] or on the 18+ server. under 15 on safe
    </p>
   </p>
   <p align="center">
