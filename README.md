@@ -23,7 +23,7 @@ not great at conversing. either we play toys or u talk to a brick wall
   <p align="center"> 
   ↳ if u gaf what labels a queer chooses 2 use or hate furries.
   <p align="center"> 
-  ↳⠀minors publicly into 18+ media [coughDMMD/8:11] or on the 18+ server. under 15 on safe
+  ↳⠀minors on 18+, under 15 on safe
    </p>
   </p>
   <p align="center">
