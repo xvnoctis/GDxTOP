@@ -9,7 +9,7 @@
 
   
 <p align="center">
-i like playing games and am bad at conversing!! Play a game with me i'm like billy jigsaw
+not great at conversing. either we play toys or u talk to a brick wall
 
 <p align="center">
 <a href="https://arab.org/click-to-help/palestine/">DAILY CLICK 🇵🇸</a> ⟡ <a href="https://listography.com/rexmachina">INTERESTS</a> ⟡ <a href="https://www.last.fm/user/rex69420">LAST.FM</a>
