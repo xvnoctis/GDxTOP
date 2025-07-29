@@ -32,3 +32,7 @@ not great at conversing. either we play toys or u talk to a brick wall
 -
 
 <a href="https://throne.com/c-el">give me money</a> #shootingmyshot
+
+bro who is doing this ur not even supposed to be on my strawpage anymore
+
+![](https://file.garden/ZgZOjIo9YF7EdB1r/hello.png)
