@@ -9,7 +9,8 @@
 
   
 <p align="center">
-not great at conversing. either we play toys or u talk to a brick wall
+
+w2i, always off-tab
 
 <p align="center">
 <a href="https://arab.org/click-to-help/palestine/">DAILY CLICK 🇵🇸</a> ⟡ <a href="https://www.last.fm/user/rex69420">LAST.FM</a>
