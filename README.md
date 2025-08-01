@@ -1,6 +1,6 @@
 
 <p align="center">
-⟡ <a href="https://rex.atabook.org">SIGN ATA/GUESTBOOK</a> ⟡
+⟡ <a href="https://rentry.co/ex-soldier">RENTRY</a> ⟡
 
 <p align="center">
 <h4 align="center"
