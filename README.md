@@ -13,7 +13,7 @@
 w2i, always off-tab
 
 <p align="center">
-<a href="https://arab.org/click-to-help/palestine/">DAILY CLICK 🇵🇸</a> ⟡ <a href="https://www.last.fm/user/rex69420">LAST.FM</a>
+<a href="https://arab.org/click-to-help/palestine/">DAILY CLICK 🇵🇸</a> ⟡ <a href="https://www.last.fm/user/rex69420">LAST.FM</a> ⟡ <a href="https://rex.atabook.org/">GUESTBOOK</a>
 
 <p align="center">
 contributions are ugly so i went priv sorry mutuals
