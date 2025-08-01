@@ -16,3 +16,4 @@ w2i, always off-tab
 <a href="https://arab.org/click-to-help/palestine/">DAILY CLICK 🇵🇸</a> ⟡ <a href="https://www.last.fm/user/rex69420">LAST.FM</a>
 
 <p align="center">
+contributions are ugly so i went priv 🤒
